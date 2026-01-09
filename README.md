@@ -50,3 +50,8 @@ https://github.com/DistroAV/DistroAV/releases/download/6.1.1/distroav-6.1.1-wind
 
 Ndi tools
 https://downloads.ndi.tv/Tools/NDI%206%20Tools.exe
+
+
+Part1️⃣ - https://www.mediafire.com/file/1x07ppu103hmb9y/[Freeeducationweb.com]+Android+and+iPhone+Software+Repair+with+a+Live+Demo.part1.rar/file
+
+Part 2️⃣ - https://www.mediafire.com/file/5l4b006xqz6ltsd/[Freeeducationweb.com]+Android+and+iPhone+Software+Repair+with+a+Live+Demo.part2.rar/file
